@@ -1,0 +1,1 @@
+# Planejamento_Estrat-gico_TI
